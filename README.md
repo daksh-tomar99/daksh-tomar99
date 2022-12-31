@@ -1,4 +1,4 @@
-![photo](https://user-images.githubusercontent.com/121450622/210130981-18244b0d-8775-4b9b-85db-a3027777a064.jpg)
+![daksh tomar](https://user-images.githubusercontent.com/121450622/210131182-1c2d628d-9e2a-445f-ad57-635e1caffd75.png)
 ### Hi there 👋
 - 🔭 I’m currently working on hacking wifi tool
 - 🌱 I’m currently learning ethical hacing and digital marketing
